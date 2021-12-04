@@ -1,4 +1,4 @@
-### Hey, my name is John 👋 nice to meet u 😄🥰
+### hey! 👋 my name is John. nice to meet u!! 😄🥰
 
 - 📚📖 I'm a big fan of Open Research! Support my open research through [Patreon](https://www.patreon.com/johnvandivier).
 - 🖥️⌨️ I love teaching people to code! Learn with me through [Ladderly](http://ladderly.io/) and my educational TikTok page! 😄
